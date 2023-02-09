@@ -5,7 +5,7 @@ The orginal howto is posted here: https://happycamper84.medium.com/let-credentia
 
 2 years after I wrote that walkthrough the DA terminated the original contract and hired a new company to run ArmyignitED. 
 
-The updated howot for the new site is here: https://medium.com/@happycamper84/let-credentialing-assistance-pay-your-sans-renewal-fees-version-2-0-512c11a50b9f
+The updated howto for the new site is here: https://medium.com/@happycamper84/let-credentialing-assistance-pay-your-sans-renewal-fees-version-2-0-512c11a50b9f
 
 If you have any questions then just message me on FB, LinkedIn, work email, Teams, or hell if you know me in 'real life' then just ask or text me.
 
